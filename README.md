@@ -1,2 +1,1 @@
-# Useful AdobeCracks
-Luis Mariscotes
+None
