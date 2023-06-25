@@ -1,2 +1,2 @@
-# Adobe-Photoshop
+# Useful AdobeCracks
 Luis Mariscotes
